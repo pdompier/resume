@@ -1,4 +1,4 @@
-Paige Dompier
+Paige Dompier  
 Address: Golden, CO
 Education
 Colorado School of Mines, 2020-Present
